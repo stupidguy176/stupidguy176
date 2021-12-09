@@ -1,1 +1,1 @@
-<img src="sky.jpg"></img>
+<img src="skyy.jpg"></img>
