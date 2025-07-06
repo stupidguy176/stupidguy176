@@ -1,5 +1,5 @@
-h i , 
+h i ,
 
-i h o p e y o u , 
+i h o p e y o u ' r e
 
-e n j o y f u l l o f y o u r e x i s t e n c e ,
+f u l l y e n j o y i n g y o u r e x i s t e n c e .
